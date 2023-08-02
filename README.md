@@ -1,1 +1,1 @@
-not for everyone
+and only for this task 
